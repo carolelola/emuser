@@ -1,9 +1,10 @@
-# emuser
-
 
 # CAROLE VINCENT
 ## 12605 NE 183RD ST APT 1003  " BOTHELL, WA 98011
-## 206.979.4331 " carolelola@me.com
+## 206.979.4331 " carolelola@me<span>.</span>com
+
+***
+
 
 Summary
  
