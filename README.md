@@ -1,52 +1,42 @@
 
 # CAROLE VINCENT
-## 12605 NE 183RD ST APT 1003  " BOTHELL, WA 98011
-## 206.979.4331 " carolelola@me<span>.</span>com
-
+## 12605 NE 183RD ST APT 1003   
+## BOTHELL, WA 98011
+### 206.979.4331 &nbsp; &nbsp; &nbsp; carolelola@me<span>.</span>com
 ***
 
 
-Summary
+## Summary
  
+* Seven years experience working in the healthcare industry as a Certified Medical Assistant
+* Well-liked by patients, co-workers, and management
+* Excellent interpersonal skills-especially with individuals who are under emotional and physical distress. Able to defuse volatile situations
+* Superb customer service abilities, which include working with a very diverse demographic
+* Organized with exceptional attention to detail
+* Works well under pressure while maintaining a positive attitude
 
-"	Seven years experience working in the healthcare industry as a Certified Medical Assistant
-"	Well-liked by patients, co-workers, and management
-"	Excellent interpersonal skills-especially with individuals who are under emotional and physical distress. Able to defuse volatile situations
-"	Superb customer service abilities, which include working with a very diverse demographic
-"	Organized with exceptional attention to detail
-"	Works well under pressure while maintaining a positive attitude
 
-
-Computer Skills
+## Computer Skills
  
-
+* PC and MAC proficient
+* 40 wpm keyboard
+* Centricity
+* Microsoft Office/Outlook
+* QuickBooks
+* DigiCharts
  
-"	PC and MAC proficient
-"	40 wpm keyboard
-"	Centricity
- 
-"	Microsoft Office/Outlook
-"	QuickBooks
-"	DigiCharts
- 
+## Accomplishments
 
+* President's List: 2009, 2010
+* Golden Acorn Award (Washington State PTA): 2005
+* Magna Cum Laude: 1992, 2010
+* Outstanding Young Women in America: 1992
+* Phi Kappa Phi: 1992
+* Dean's List: 1991,1992, 2009, 2010
 
- 
-Accomplishments
+## Experience
 
-"	President's List: 2009, 2010
-"	Golden Acorn Award (Washington State PTA): 2005
-"	Magna Cum Laude: 1992, 2010
-"	Outstanding Young Women in America: 1992
-"	Phi Kappa Phi: 1992
-"	Dean's List: 1991,1992, 2009, 2010
-
-
- 
-Experience
-
-
-  EvergreenHealth OB/GYN Tan  "  Kirkland, WA	           January 2011 to Current
+**EvergreenHealth OB/GYN Tan**  &nbsp; &nbsp; &nbsp; &nbsp; Kirkland, WA	           January 2011 to Current
 Certified Medical Assistant (AAMA)
 
 "	Direct patient contact, triaging patients, vital signs, electronic medical record documentation, injections, venipuncture, and assisting multiple physicians with medical procedures
@@ -88,6 +78,4 @@ A.A.S. Medical Assisting Graduated Magna Cum Laude GPA 4.0
 University of New Mexico " Albuquerque, NM	May 1992
 B.S. Biology, History
 Graduated with Honors, Magna Cum Laude GPA 3.9
-
-
 
