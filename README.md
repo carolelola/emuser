@@ -1,7 +1,7 @@
 
 # CAROLE VINCENT
 ## 12605 NE 183RD ST APT 1003   
-## BOTHELL, WA 98011
+## BOTHELL, WA &nbsp; 98011
 ### 206.979.4331 &nbsp; &nbsp; &nbsp; carolelola@me<span>.</span>com
 ***
 
@@ -36,31 +36,42 @@
 
 ## Experience
 
-**EvergreenHealth OB/GYN Tan**  &nbsp; &nbsp; &nbsp; &nbsp; Kirkland, WA	           January 2011 to Current
-Certified Medical Assistant (AAMA)
+### **EvergreenHealth OB/GYN Tan**  &nbsp; &nbsp; &nbsp; &nbsp; Kirkland, WA	&nbsp; &nbsp; &nbsp; January 2011 to Current
 
-"	Direct patient contact, triaging patients, vital signs, electronic medical record documentation, injections, venipuncture, and assisting multiple physicians with medical procedures
-"	Updating pharmacy, medication, and referral information in EMR
-"	Developed multiple nurse station organization systems
-"	Initiated recycling program
-"	Adopted Medical Supplies for Developing Nations program
-"	Implemented several cost-saving procedures
- 
-Carole Vincent Page 2 of 2
+**Certified Medical Assistant, MA-C (AAMA)**
 
-Evergreen Women's Care " Kirkland, WA	September 2010 to December 2010
-Extern
-"	Training externship for medical assisting
+* Direct patient contact, triaging patients, vital signs, electronic medical record documentation, injections, venipuncture, and assisting multiple physicians with medical procedures
+* Updates pharmacy, medication, and referral information in EMR
+* Developed multiple nurse station organization systems
+* Initiated recycling program
+* Adopted Medical Supplies for Developing Nations program
+* Implemented several cost-saving procedures
 
-Promium, LLC "   Bothell, WA	May 2005 to June 2007
-Bookkeeper/HR
-"	Took over bookkeeping of family software business when CPA left abruptly
-"	AP/AR, HR, payroll, taxes, collections, government bids
-"	Interviewed, hired, and trained replacement bookkeeper
+---
 
-Kokanee Elementary " Woodinville, WA	September 1998 to June 2007 Arrowwood Elementary " Highlands Ranch, CO
-Sand Creek Elementary " Highlands Ranch, CO Woodin Elementary " Woodinville, WA
-Parent Volunteer
+### **Evergreen Women's Care** &nbsp; &nbsp; &nbsp; &nbsp; Kirkland, WA	&nbsp; &nbsp; &nbsp;September 2010 to December 2010
+
+**Extern**
+
+Training externship for medical assisting
+
+---
+
+### **Promium, LLC** &nbsp; &nbsp; &nbsp; &nbsp; Bothell, WA	&nbsp; &nbsp; &nbsp; May 2005 to June 2007
+
+**Bookkeeper/Human Resources**
+
+* Took over bookkeeping of family software business when CPA left abruptly
+* Taught myself accounting software and business practices
+* AP/AR, HR, payroll, taxes, collections, government bids
+* Interviewed, hired, and trained replacement bookkeeper
+
+### Kokanee Elementary  &nbsp; &nbsp; &nbsp; &nbsp; Woodinville, WA	September &nbsp; &nbsp; &nbsp; 1998 to June 2007 
+### Arrowwood Elementary  &nbsp; &nbsp; &nbsp; Highlands Ranch, CO
+### Sand Creek Elementary &nbsp; &nbsp; &nbsp; Highlands Ranch, CO 
+### Woodin Elementary &nbsp; &nbsp; &nbsp; Woodinville, WA
+
+## Parent Volunteer
 "	Science Docent, Art Docent
 "	Safe Arrival Volunteer, Parent driver
 "	Classroom Helper
