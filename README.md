@@ -61,7 +61,7 @@ Training externship for medical assisting
 * Interviewed, hired, and trained replacement bookkeeper
 
 ---
-## Parent Volunteer&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; September 1998 to June 2007  
+### **Parent Volunteer&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; September 1998 to June 2007**  
 **Kokanee Elementary  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Woodinville, WA**  
 **Arrowwood Elementary  &nbsp; &nbsp; &nbsp; Highlands Ranch, CO**  
 **Sand Creek Elementary &nbsp; &nbsp; &nbsp; Highlands Ranch, CO**  
@@ -74,7 +74,7 @@ Training externship for medical assisting
 
 ---
 
-## Stay-at-home Mom	August 1992-January 2011
+### Stay-at-home Mom	August 1992-January 2011
 
 ---
 
