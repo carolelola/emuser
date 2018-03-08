@@ -1,32 +1,26 @@
 
 # CAROLE VINCENT
-## 12605 NE 183RD ST APT 1003   
+## 12605 NE 183RD ST APT 1003
 ## BOTHELL, WA &nbsp; 98011
 ### 206.979.4331 &nbsp; &nbsp; &nbsp; carolelola@me<span>.</span>com
 ***
 
 
 ## Summary
- 
 * Seven years experience working in the healthcare industry as a Certified Medical Assistant
 * Well-liked by patients, co-workers, and management
 * Excellent interpersonal skills-especially with individuals who are under emotional and physical distress. Able to defuse volatile situations
 * Superb customer service abilities, which include working with a very diverse demographic
 * Organized with exceptional attention to detail
 * Works well under pressure while maintaining a positive attitude
-
-
 ## Computer Skills
- 
-* PC and MAC proficient
+ * PC and MAC proficient
 * 40 wpm keyboard
 * Centricity
 * Microsoft Office/Outlook
 * QuickBooks
 * DigiCharts
- 
 ## Accomplishments
-
 * President's List: 2009, 2010
 * Golden Acorn Award (Washington State PTA): 2005
 * Magna Cum Laude: 1992, 2010
@@ -67,13 +61,12 @@ Training externship for medical assisting
 * Interviewed, hired, and trained replacement bookkeeper
 
 ---
+## Parent Volunteer&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; September 1998 to June 2007  
+**Kokanee Elementary  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Woodinville, WA**  
+**Arrowwood Elementary  &nbsp; &nbsp; &nbsp; Highlands Ranch, CO**  
+**Sand Creek Elementary &nbsp; &nbsp; &nbsp; Highlands Ranch, CO**  
+**Woodin Elementary &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Woodinville, WA**  
 
-## * Kokanee Elementary  &nbsp; &nbsp; &nbsp; &nbsp; Woodinville, WA	September &nbsp; &nbsp; &nbsp; 1998 to June 2007 
-## * Arrowwood Elementary  &nbsp; &nbsp; &nbsp; Highlands Ranch, CO
-## * Sand Creek Elementary &nbsp; &nbsp; &nbsp; Highlands Ranch, CO 
-## * Woodin Elementary &nbsp; &nbsp; &nbsp; Woodinville, WA
-
-## Parent Volunteer
 * Science Docent, Art Docent
 * Safe Arrival Volunteer, Parent driver
 * Classroom Helper
