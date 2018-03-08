@@ -66,27 +66,31 @@ Training externship for medical assisting
 * AP/AR, HR, payroll, taxes, collections, government bids
 * Interviewed, hired, and trained replacement bookkeeper
 
-### Kokanee Elementary  &nbsp; &nbsp; &nbsp; &nbsp; Woodinville, WA	September &nbsp; &nbsp; &nbsp; 1998 to June 2007 
-### Arrowwood Elementary  &nbsp; &nbsp; &nbsp; Highlands Ranch, CO
-### Sand Creek Elementary &nbsp; &nbsp; &nbsp; Highlands Ranch, CO 
-### Woodin Elementary &nbsp; &nbsp; &nbsp; Woodinville, WA
+---
+
+## * Kokanee Elementary  &nbsp; &nbsp; &nbsp; &nbsp; Woodinville, WA	September &nbsp; &nbsp; &nbsp; 1998 to June 2007 
+## * Arrowwood Elementary  &nbsp; &nbsp; &nbsp; Highlands Ranch, CO
+## * Sand Creek Elementary &nbsp; &nbsp; &nbsp; Highlands Ranch, CO 
+## * Woodin Elementary &nbsp; &nbsp; &nbsp; Woodinville, WA
 
 ## Parent Volunteer
-"	Science Docent, Art Docent
-"	Safe Arrival Volunteer, Parent driver
-"	Classroom Helper
-"	Assistant Director of School Musicals
+* Science Docent, Art Docent
+* Safe Arrival Volunteer, Parent driver
+* Classroom Helper
+* Assistant Director of School Musicals
 
-Stay-at-home Mom	August 1992-January 2011
+---
 
+## Stay-at-home Mom	August 1992-January 2011
 
-Education
- 
+---
 
-Lake Washington Institute of Technology " Kirkland, WA	December 2010
-A.A.S. Medical Assisting Graduated Magna Cum Laude GPA 4.0
+### Education
 
-University of New Mexico " Albuquerque, NM	May 1992
+## Lake Washington Institute of Technology " &nbsp; &nbsp; &nbsp; Kirkland, WA	December 2010
+A.A.S. Medical Assisting, &nbsp; Graduated Magna Cum Laude GPA 4.0
+
+## University of New Mexico " &nbsp; &nbsp; &nbsp; &nbsp; Albuquerque, NM	May 1992
 B.S. Biology, History
-Graduated with Honors, Magna Cum Laude GPA 3.9
+Graduated with Honors, &nbsp; Magna Cum Laude GPA 3.9
 
