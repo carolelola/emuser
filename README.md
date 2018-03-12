@@ -43,7 +43,6 @@
 * Adopted Medical Supplies for Developing Nations program
 * Implemented several cost-saving procedures
 
----
 
 ### **Evergreen Women's Care** &nbsp; &nbsp; &nbsp; &nbsp; Kirkland, WA	&nbsp; &nbsp; &nbsp;September 2010 to December 2010
 
@@ -51,9 +50,9 @@
 
 Training externship for medical assisting
 
----
 
-### **Promium, LLC** &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Bothell, WA	&nbsp; &nbsp; &nbsp; May 2005 to June 2007
+### **Promium, LLC** &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Bothell, WA	&nbsp; &nbsp; &nbsp; May 2005 to June 2007
+
 **Bookkeeper/Human Resources**
 
 * Took over bookkeeping of family software business when CPA left abruptly
@@ -61,7 +60,7 @@ Training externship for medical assisting
 * AP/AR, HR, payroll, taxes, collections, government bids
 * Interviewed, hired, and trained replacement bookkeeper
 
----
+
 ### **Parent Volunteer&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; September 1998 to June 2007**  
 **Kokanee Elementary  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Woodinville, WA**  
 **Arrowwood Elementary  &nbsp; &nbsp; &nbsp; Highlands Ranch, CO**  
@@ -73,12 +72,9 @@ Training externship for medical assisting
 * Classroom Helper
 * Assistant Director of School Musicals
 
----
 
 ### Stay-at-home Mom	&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; August 1992-January 2011
 
----
----
 
 ## Education
 
