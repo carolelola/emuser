@@ -5,6 +5,8 @@
 ### 206.979.4331 &nbsp; &nbsp; &nbsp; carolelola@me<span>.</span>com
 ***
 
+## Objective
+To obtain the valuable training necessary to work as a developer in a challenging setting whereby I could work towards alleviating some of the challenges faced by the LGBTQ community.
 
 ## Summary
 * Seven years experience working in the healthcare industry as a Certified Medical Assistant
