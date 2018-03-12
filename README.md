@@ -6,7 +6,7 @@
 ***
 
 ## Objective
-&emsp; **To obtain the valuable training necessary to work as a developer in a challenging setting whereby I could work &emsp; towards alleviating some of the challenges faced by the LGBTQ community**
+**To obtain the valuable training necessary to work as a developer in a challenging setting whereby I could work towards alleviating some of the challenges faced by the LGBTQ community**
 
 ___
 ## Summary
