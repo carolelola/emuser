@@ -61,7 +61,7 @@
 * Interviewed, hired, and trained replacement bookkeeper
 
 
-### **Parent Volunteer**  &nbsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; September 1998 to June 2007  
+### **Parent Volunteer**  &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&ensp; September 1998 to June 2007  
 
 *Kokanee Elementary &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Woodinville, WA*  
 *Arrowwood Elementary &nbsp;&nbsp;&nbsp; Highlands Ranch, CO*  
@@ -74,7 +74,7 @@
 * Assistant Director of School Musicals
 
 
-### Stay-at-home Mom	&nbsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; August 1992-January 2011
+### Stay-at-home Mom	&ensp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; August 1992-January 2011
 
 
 ## Education
