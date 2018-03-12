@@ -63,10 +63,10 @@
 
 ### **Parent Volunteer**  &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&ensp; September 1998 to June 2007  
 
-*Kokanee Elementary &emsp;&emsp;&emsp;&emsp; Woodinville, WA*  
+*Kokanee Elementary &emsp;&emsp;&emsp;&emsp;&nbsp; Woodinville, WA*  
 *Arrowwood Elementary &emsp;&emsp;&emsp; Highlands Ranch, CO*  
 *Sand Creek Elementary &emsp;&emsp;&emsp; Highlands Ranch, CO*  
-*Woodin Elementary &emsp;&emsp;&emsp;&emsp;&emsp; Woodinville, WA*
+*Woodin Elementary &emsp;&emsp;&emsp;&emsp;&ensp; Woodinville, WA*
 
 * Science Docent, Art Docent
 * Safe Arrival Volunteer, Parent driver
