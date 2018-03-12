@@ -36,7 +36,7 @@
 
 &nbsp;&nbsp;&nbsp; **Certified Medical Assistant, MA-C (AAMA)**
 
-* Direct patient contact, triaging patients, vital signs, electronic medical record documentation, injections, venipuncture, and assisting multiple physicians with medical procedures
+* Direct patient contact, triaging patients, vital signs, electronic medical record documentation, injections,  venipuncture, and assisting multiple physicians with medical procedures
 * Updates pharmacy, medication, and referral information in EMR
 * Developed multiple nurse station organization systems
 * Initiated recycling program
@@ -79,10 +79,10 @@
 
 ## Education
 
-### Lake Washington Institute of Technology  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Kirkland, WA &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;	December 2010
+### Lake Washington Institute of Technology  &emsp;&emsp;&emsp;&emsp; Kirkland, WA &emsp;&ensp;&nbsp;	December 2010
 A.A.S. Medical Assisting, &nbsp; Graduated Magna Cum Laude GPA 4.0
 
-### University of New Mexico  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Albuquerque, NM	May 1992
+### University of New Mexico &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&ensp;&emsp;&emsp;&emsp;&ensp; Albuquerque, NM	&emsp;&emsp;&nbsp; May 1992
 B.S. Biology, History
 Graduated with Honors, &nbsp; Magna Cum Laude GPA 3.9
 
