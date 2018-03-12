@@ -34,7 +34,7 @@
 
 ### **EvergreenHealth OB/GYN Tan**  &nbsp; &nbsp; &nbsp; &nbsp; Kirkland, WA	&nbsp; &nbsp; &nbsp; January 2011 to Current
 
-**Certified Medical Assistant, MA-C (AAMA)**
+&nbsp;&nbsp;&nbsp; **Certified Medical Assistant, MA-C (AAMA)**
 
 * Direct patient contact, triaging patients, vital signs, electronic medical record documentation, injections, venipuncture, and assisting multiple physicians with medical procedures
 * Updates pharmacy, medication, and referral information in EMR
@@ -46,14 +46,14 @@
 
 ### **Evergreen Women's Care** &nbsp; &nbsp; &nbsp; &nbsp; Kirkland, WA	&nbsp; &nbsp; &nbsp;September 2010 to December 2010
 
-**Extern - Medical Assistant**
+&nbsp;&nbsp;&nbsp; *Extern - Medical Assistant**
 
-Training externship for medical assisting
+* Training externship for medical assisting
 
 
 ### **Promium, LLC** &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Bothell, WA	&nbsp; &nbsp; &nbsp; May 2005 to June 2007
 
-**Bookkeeper/Human Resources**
+&nbsp;&nbsp;&nbsp; *Bookkeeper/Human Resources**
 
 * Took over bookkeeping of family software business when CPA left abruptly
 * Taught myself accounting software and business practices
@@ -62,10 +62,10 @@ Training externship for medical assisting
 
 
 ### **Parent Volunteer&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; September 1998 to June 2007**  
-**Kokanee Elementary  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Woodinville, WA**  
-**Arrowwood Elementary  &nbsp; &nbsp; &nbsp; Highlands Ranch, CO**  
-**Sand Creek Elementary &nbsp; &nbsp; &nbsp; Highlands Ranch, CO**  
-**Woodin Elementary &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Woodinville, WA**  
+*Kokanee Elementary  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Woodinville, WA**  
+*Arrowwood Elementary  &nbsp; &nbsp; &nbsp; Highlands Ranch, CO**  
+*Sand Creek Elementary &nbsp; &nbsp; &nbsp; Highlands Ranch, CO**  
+*Woodin Elementary &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Woodinville, WA**  
 
 * Science Docent, Art Docent
 * Safe Arrival Volunteer, Parent driver
