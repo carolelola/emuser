@@ -63,10 +63,10 @@
 
 ### **Parent Volunteer**  &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&ensp; September 1998 to June 2007  
 
-*Kokanee Elementary &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Woodinville, WA*  
-*Arrowwood Elementary &nbsp;&nbsp;&nbsp; Highlands Ranch, CO*  
-*Sand Creek Elementary &nbsp;&nbsp;&nbsp; Highlands Ranch, CO*  
-*Woodin Elementary &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Woodinville, WA*
+*Kokanee Elementary &emsp;&emsp;&emsp;&emsp; Woodinville, WA*  
+*Arrowwood Elementary &emsp;&emsp;&emsp; Highlands Ranch, CO*  
+*Sand Creek Elementary &emsp;&emsp;&emsp; Highlands Ranch, CO*  
+*Woodin Elementary &emsp;&emsp;&emsp;&emsp;&emsp; Woodinville, WA*
 
 * Science Docent, Art Docent
 * Safe Arrival Volunteer, Parent driver
@@ -80,9 +80,9 @@
 ## Education
 
 ### Lake Washington Institute of Technology  &emsp;&emsp;&emsp;&emsp; Kirkland, WA &emsp;&ensp;&nbsp;	December 2010
-A.A.S. Medical Assisting, &nbsp; Graduated Magna Cum Laude GPA 4.0
+A.A.S. Medical Assisting, &emsp; Graduated Magna Cum Laude GPA 4.0
 
 ### University of New Mexico &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&ensp;&emsp;&emsp;&emsp;&ensp; Albuquerque, NM	&emsp;&emsp;&nbsp; May 1992
 B.S. Biology, History
-Graduated with Honors, &nbsp; Magna Cum Laude GPA 3.9
+Graduated with Honors, &emsp; Magna Cum Laude GPA 3.9
 
