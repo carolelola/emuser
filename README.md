@@ -16,7 +16,7 @@
 * Organized with exceptional attention to detail
 * Works well under pressure while maintaining a positive attitude
 ## Computer Skills
- * PC and MAC proficient
+* PC and MAC proficient
 * 40 wpm keyboard
 * Centricity
 * Microsoft Office/Outlook
@@ -32,7 +32,7 @@
 
 ## Experience
 
-### **EvergreenHealth OB/GYN Tan**  &nbsp; &nbsp; &nbsp; &nbsp; Kirkland, WA	&nbsp; &nbsp; &nbsp; January 2011 to Current
+### **EvergreenHealth OB/GYN Tan**  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Kirkland, WA	&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; January 2011 to Current
 
 &nbsp;&nbsp;&nbsp; **Certified Medical Assistant, MA-C (AAMA)**
 
@@ -44,14 +44,14 @@
 * Implemented several cost-saving procedures
 
 
-### **Evergreen Women's Care** &nbsp; &nbsp; &nbsp; &nbsp; Kirkland, WA	&nbsp; &nbsp; &nbsp;September 2010 to December 2010
+### **Evergreen Women's Care** &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Kirkland, WA	&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; September 2010 to December 2010
 
-&nbsp;&nbsp;&nbsp; *Extern - Medical Assistant**
+&nbsp;&nbsp;&nbsp; **Extern - Medical Assistant**
 
 * Training externship for medical assisting
 
 
-### **Promium, LLC** &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Bothell, WA	&nbsp; &nbsp; &nbsp; May 2005 to June 2007
+### **Promium, LLC** &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Bothell, WA	&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; May 2005 to June 2007
 
 &nbsp;&nbsp;&nbsp; *Bookkeeper/Human Resources**
 
@@ -61,7 +61,7 @@
 * Interviewed, hired, and trained replacement bookkeeper
 
 
-### **Parent Volunteer&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; September 1998 to June 2007**  
+### **Parent Volunteer** &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; September 1998 to June 2007  
 
 *Kokanee Elementary &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Woodinville, WA*  
 *Arrowwood Elementary &nbsp;&nbsp;&nbsp; Highlands Ranch, CO*  
@@ -74,15 +74,15 @@
 * Assistant Director of School Musicals
 
 
-### Stay-at-home Mom	&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; August 1992-January 2011
+### Stay-at-home Mom	&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; August 1992-January 2011
 
 
 ## Education
 
-### Lake Washington Institute of Technology  &nbsp; &nbsp; &nbsp; Kirkland, WA	December 2010
+### Lake Washington Institute of Technology  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Kirkland, WA &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;	December 2010
 A.A.S. Medical Assisting, &nbsp; Graduated Magna Cum Laude GPA 4.0
 
-### University of New Mexico  &nbsp; &nbsp; &nbsp; &nbsp; Albuquerque, NM	May 1992
+### University of New Mexico  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Albuquerque, NM	May 1992
 B.S. Biology, History
 Graduated with Honors, &nbsp; Magna Cum Laude GPA 3.9
 
