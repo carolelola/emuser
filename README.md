@@ -6,8 +6,9 @@
 ***
 
 ## Objective
-**To obtain the valuable training necessary to work as a developer in a challenging setting whereby I could work towards alleviating some of the challenges faced by the LGBTQ community**
+&emsp; **To obtain the valuable training necessary to work as a developer in a challenging setting whereby I could work &emsp; towards alleviating some of the challenges faced by the LGBTQ community**
 
+___
 ## Summary
 * Seven years experience working in the healthcare industry as a Certified Medical Assistant
 * Well-liked by patients, co-workers, and management
@@ -15,6 +16,8 @@
 * Superb customer service abilities, which include working with a very diverse demographic
 * Organized with exceptional attention to detail
 * Works well under pressure while maintaining a positive attitude
+
+___
 ## Computer Skills
 * PC and MAC proficient
 * 40 wpm keyboard
@@ -22,6 +25,8 @@
 * Microsoft Office/Outlook
 * QuickBooks
 * DigiCharts
+
+___
 ## Accomplishments
 * President's List: 2009, 2010
 * Golden Acorn Award (Washington State PTA): 2005
@@ -30,13 +35,15 @@
 * Phi Kappa Phi: 1992
 * Dean's List: 1991,1992, 2009, 2010
 
+___
 ## Experience
+
 
 ### **EvergreenHealth OB/GYN Tan**&emsp;&emsp;&emsp; Kirkland, WA &emsp;&emsp;&emsp;&emsp; January 2011 to Current
 
-&nbsp;&nbsp;&nbsp; **Certified Medical Assistant, MA-C (AAMA)**
+&emsp; **Certified Medical Assistant, MA-C (AAMA)**
 
-* Direct patient contact, triaging patients, vital signs, electronic medical record documentation, injections,  venipuncture, and assisting multiple physicians with medical procedures
+* Direct patient contact, triaging patients, vital signs, electronic medical record documentation, injections, venipuncture, and assisting multiple physicians with medical procedures
 * Updates pharmacy, medication, and referral information in EMR
 * Developed multiple nurse station organization systems
 * Initiated recycling program
@@ -46,14 +53,14 @@
 
 ### **Evergreen Women's Care**&emsp;&emsp; Kirkland, WA &emsp;&emsp; September 2010 to December 2010
 
-&nbsp;&nbsp;&nbsp; **Extern - Medical Assistant**
+&emsp; **Extern - Medical Assistant**
 
 * Training externship for medical assisting
 
 
 ### **Promium, LLC** &nbsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; Bothell, WA &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;May 2005 to June 2007
 
-&nbsp;&nbsp;&nbsp; *Bookkeeper/Human Resources**
+&emsp; **Bookkeeper/Human Resources**
 
 * Took over bookkeeping of family software business when CPA left abruptly
 * Taught myself accounting software and business practices
@@ -76,7 +83,7 @@
 
 ### Stay-at-home Mom	&ensp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; August 1992-January 2011
 
-
+___
 ## Education
 
 ### Lake Washington Institute of Technology  &emsp;&emsp;&emsp;&emsp; Kirkland, WA &emsp;&ensp;&nbsp;	December 2010
