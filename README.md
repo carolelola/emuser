@@ -6,7 +6,7 @@
 ***
 
 ## Objective
-To obtain the valuable training necessary to work as a developer in a challenging setting whereby I could work towards alleviating some of the challenges faced by the LGBTQ community.
+**To obtain the valuable training necessary to work as a developer in a challenging setting whereby I could work towards alleviating some of the challenges faced by the LGBTQ community**
 
 ## Summary
 * Seven years experience working in the healthcare industry as a Certified Medical Assistant
@@ -47,14 +47,13 @@ To obtain the valuable training necessary to work as a developer in a challengin
 
 ### **Evergreen Women's Care** &nbsp; &nbsp; &nbsp; &nbsp; Kirkland, WA	&nbsp; &nbsp; &nbsp;September 2010 to December 2010
 
-**Extern**
+**Extern - Medical Assistant**
 
 Training externship for medical assisting
 
 ---
 
-### **Promium, LLC** &nbsp; &nbsp; &nbsp; &nbsp; Bothell, WA	&nbsp; &nbsp; &nbsp; May 2005 to June 2007
-
+### **Promium, LLC** &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; Bothell, WA	&nbsp; &nbsp; &nbsp; May 2005 to June 2007
 **Bookkeeper/Human Resources**
 
 * Took over bookkeeping of family software business when CPA left abruptly
@@ -76,16 +75,17 @@ Training externship for medical assisting
 
 ---
 
-### Stay-at-home Mom	August 1992-January 2011
+### Stay-at-home Mom	&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; August 1992-January 2011
 
 ---
+---
 
-### Education
+## Education
 
-## Lake Washington Institute of Technology " &nbsp; &nbsp; &nbsp; Kirkland, WA	December 2010
+### Lake Washington Institute of Technology  &nbsp; &nbsp; &nbsp; Kirkland, WA	December 2010
 A.A.S. Medical Assisting, &nbsp; Graduated Magna Cum Laude GPA 4.0
 
-## University of New Mexico " &nbsp; &nbsp; &nbsp; &nbsp; Albuquerque, NM	May 1992
+### University of New Mexico  &nbsp; &nbsp; &nbsp; &nbsp; Albuquerque, NM	May 1992
 B.S. Biology, History
 Graduated with Honors, &nbsp; Magna Cum Laude GPA 3.9
 
