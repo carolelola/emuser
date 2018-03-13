@@ -6,7 +6,7 @@
 ***
 
 ## Objective
-**To obtain the valuable training necessary to work as a developer in a challenging setting whereby I could work towards alleviating some of the challenges faced by the LGBTQ community**
+**To obtain the training necessary to work as a developer in a challenging setting wherein I could help alleviate some of the challenges faced by the LGBTQ community**
 
 ___
 ## Summary
@@ -87,9 +87,8 @@ ___
 ## Education
 
 ### Lake Washington Institute of Technology  &emsp;&emsp;&emsp;&emsp; Kirkland, WA &emsp;&ensp;&nbsp;	December 2010
-A.A.S. Medical Assisting, &emsp; Graduated Magna Cum Laude GPA 4.0
+A.A.S. Medical Assisting; &emsp; Graduated Magna Cum Laude; &emsp; &emsp;&emsp;GPA 4.0
 
 ### University of New Mexico &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&ensp;&emsp;&emsp;&emsp;&ensp; Albuquerque, NM	&emsp;&emsp;&nbsp; May 1992
-B.S. Biology, History
-Graduated with Honors, &emsp; Magna Cum Laude GPA 3.9
+B.S. Biology, History;  &emsp;&emsp;&emsp;&nbsp; Graduated Magna Cum Laude &emsp; GPA 3.9
 
