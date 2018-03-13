@@ -87,8 +87,8 @@ ___
 ## Education
 
 ### Lake Washington Institute of Technology  &emsp;&emsp;&emsp;&emsp; Kirkland, WA &emsp;&ensp;&nbsp;	December 2010
-A.A.S. Medical Assisting; &emsp; Graduated Magna Cum Laude; &emsp; &emsp;&emsp;GPA 4.0
+A.A.S. Medical Assisting &emsp;&emsp;&emsp; Graduated Magna Cum Laude, GPA 4.0
 
 ### University of New Mexico &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&ensp;&emsp;&emsp;&emsp;&ensp; Albuquerque, NM	&emsp;&emsp;&nbsp; May 1992
-B.S. Biology, History;  &emsp;&emsp;&emsp;&nbsp; Graduated Magna Cum Laude &emsp; GPA 3.9
+B.S. Biology, History  &emsp;&emsp;&emsp;&nbsp;&emsp; Graduated Magna Cum Laude, GPA 3.9
 
